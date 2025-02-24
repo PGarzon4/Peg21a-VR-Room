@@ -1,0 +1,15 @@
+https://polyhaven.com/a/painted_wooden_nightstand
+https://polyhaven.com/a/WoodenTable_03
+https://polyhaven.com/a/Television_01
+https://polyhaven.com/a/hanging_picture_frame_02
+https://assetstore.unity.com/packages/3d/props/persiang-carpets-urp-261455
+https://polyhaven.com/a/vintage_wooden_drawer_01
+https://polyhaven.com/a/ornate_mirror_01
+https://polyhaven.com/a/beige_wall_001
+https://assetstore.unity.com/packages/3d/props/interior/picture-frames-with-photos-106907
+https://polyhaven.com/a/alarm_clock_01
+https://polyhaven.com/a/standing_picture_frame_02
+https://polyhaven.com/a/treasure_chest
+https://polyhaven.com/a/wooden_crate_01
+https://assetstore.unity.com/packages/3d/props/interior/free-wood-door-pack-280509
+https://polyhaven.com/a/modern_arm_chair_01
